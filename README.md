@@ -1,4 +1,4 @@
-# 👨‍💻 Gabriel Toshiyuki Kobayashi
+# 👨‍💻 Gabriel Kobayashi
 
 **`Software Developer`**
 
